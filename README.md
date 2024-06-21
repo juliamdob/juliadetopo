@@ -1,5 +1,3 @@
-# juliadetopo
-
 ### Boas vindas ao meu perfil🤗
 
 👋 Hi, Eu sou @juliamdob
