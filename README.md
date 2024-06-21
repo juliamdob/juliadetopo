@@ -9,3 +9,5 @@
 
 - ### Você pode entrar em contato comigo: 📫
 0000124130774XSP@al.educacao.sp.gov.br 
+
+![](https://media.tenor.com/yCFHzEvKa9MAAAAi/hello.gif)
